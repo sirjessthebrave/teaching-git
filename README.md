@@ -1,8 +1,4 @@
-WE ARE LEARNIN GIT BITCHES
+WE ARE LEARNIN GIT!!
 
-Seth branch is the sexiest branch
+Make your Code Changes HERE:
 
-
-Jess branch is the best branch cuz the jess branch dont stop
-
-Sarah yay!
